@@ -1,4 +1,4 @@
-# Lolicon all url by shell.
+# Lolicon URL汇总
 
 URL最新更新日期：2021/12/27（31107张）
 
