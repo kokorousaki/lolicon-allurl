@@ -1,0 +1,2 @@
+# lolicon-allurl
+all
